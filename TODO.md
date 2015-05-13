@@ -18,3 +18,4 @@
 - Mozzarella Sticks
 - Easy Applesauce
 - Apple Torte
+- Zolstein's Chili
