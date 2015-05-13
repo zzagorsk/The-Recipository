@@ -1,0 +1,20 @@
+- Green Bean Casserole
+- Baked Ziti - (spinach and/or eggplant optional)
+- Cheese Noodle Kugel
+- Corn-Onion Casserole
+- Shakshuka
+- Gado Gado
+- Sweet Potato Pasta
+- Spinach & Artichoke Dip
+- Easy Hummus
+- Oreo Truffles
+- Cayenne Brownies - "Caution: May be hot"
+- Baked Macaroni & Cheese
+- Sweet & Sour "Meatballs"
+- Mini Pizzas - Tortilla-sized & Miniature-sized
+- Homemade Tortilla Chips
+- Guacamole
+- Avocado Fries
+- Mozzarella Sticks
+- Easy Applesauce
+- Apple Torte
